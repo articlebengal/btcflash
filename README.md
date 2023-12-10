@@ -14,3 +14,5 @@
 ⬇️ Contact us now on telegram!
 
 🔗 @falaq77 
+
+Every 1 BTC you buy from us = 5$
