@@ -14,4 +14,3 @@
 ⬇️ Contact us now on telegram!
 
 🔗 @falaq77 
-🔗 @falaq5
